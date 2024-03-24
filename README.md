@@ -1,6 +1,6 @@
 ### Olá, me chamo Phabiola 👋
 
-- 📚Estudante autônomo de ADS.
+- 📚Cusando ADS.
 - ✨Curiosidade: Meu nome é com PH, um nome antigo.
 
 <div align="center">
